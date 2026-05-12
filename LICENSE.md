@@ -1,4 +1,4 @@
-# 
+# Final Cut Pro for macOS instant Script: scene-transitions & AI-upscaling is the best Final Cut Pro for macOS script, featuring scene-transitions and AI-upscaling. Safe, efficient,
 
 
 
